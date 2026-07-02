@@ -5,9 +5,8 @@ If you're spending your holiday in Hurghada, one of the best experiences you can
 ## Why Visit Cairo from Hurghada?
 
 A Cairo day trip is perfect for travelers who want to combine a relaxing beach vacation with an unforgettable historical adventure. You'll discover some of the world's most iconic monuments in just one day.
-![Hurghada to Cairo Day Trip](pyramids.jpg)
 ## Tour Highlights
-
+![Giza Pyramids](pyramids.jpg)
 - Visit the Great Pyramids of Giza
 - See the legendary Great Sphinx
 - Explore the Egyptian Museum
