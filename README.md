@@ -1,6 +1,7 @@
 # 🌊 Ultimate Guide to Scuba Diving in Hurghada for Beginners
 
 
+
 Are you planning a trip to Egypt and looking for the ultimate Red Sea adventure? Hurghada is world-renowned for its crystal-clear waters, vibrant coral reefs, and diverse marine life. If you have never dived before, don't worry—you don't need a license to experience the magic of the underwater world.
 
 ## 🐠 Why Choose Hurghada for Your First Dive?
